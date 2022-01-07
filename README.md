@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DaanMeijers
+- 👀 I’m interested in coding, mountainbiking
+- 🌱 I’m currently learning about tech hardware
+- 💞️ I’m looking to collaborate on (none :) )
+- 📫 How to reach me +31 6 21483229 or daanmeijers08@gmail.com or Daan Meijers#0647 on discord
+- Have a good day :))
